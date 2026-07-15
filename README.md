@@ -1,4 +1,4 @@
-﻿# Oscar Jair Naranjo Ponce  CV Profesional
+# Oscar Jair Naranjo Ponce  CV Profesional
 
 [https://ojairnp.github.io/CvOscarNaranjo](https://ojairnp.github.io/CvOscarNaranjo)
 
